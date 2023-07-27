@@ -1,4 +1,4 @@
-Rahat Sabyrbekov
+
 Economist, development, environment, policy analysis and capacity development.
 
 <!---
